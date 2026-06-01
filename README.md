@@ -1,0 +1,1 @@
+# DE-2LS-COPs-IEEE-CEC-2026-Competition
